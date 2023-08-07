@@ -1,6 +1,6 @@
 <h1>Padaria  pão duro<h1>
 
-Nossa padaria fica localizada na avenida principa de nossa cidade,nosso expediente as 6hrs da manhã enceramos as 9hrs da noite
+Nossa padaria fica localizada na avenida principa de nossa cidade,nosso expediente  abre as 6hrs da manhã enceramos as 9hrs da noite
 
 Em nossa padaria sempre procuramos fazer o melhor para nossos clientes, trazendos as mercadorias sempre quentinhas e feitas na hora!!
 
