@@ -4,4 +4,4 @@ Nossa padaria fica localizada na avenida principa de nossa cidade, começamos no
 
 Em nossa padaria sempre procuramos fazer o melhor para nossos clientes, trazendos as mercadorias sempre quentinhas e feitas na hora!!
 
-é uma explosão de delicias 
+é uma explosão de delicias. Venhas saboriar conosco !!! 
